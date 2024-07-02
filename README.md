@@ -1,1 +1,2 @@
 Atlee Hlavinka
+hlavinka@oregonstate.edu
